@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MATLAB for macOS addon with MATLAB for macOS vip Addon: AI-assisted-analysis & real-time-collaboration. Featuring AI-assisted-analysis and
 
 
 
